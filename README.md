@@ -1,1 +1,1 @@
-possible production of vaccination. just wait for it..
+possible production of vaccine. just wait for it..
